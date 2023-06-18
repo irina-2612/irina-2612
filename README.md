@@ -24,5 +24,5 @@
 - Изучаю профессию, активно ищу работу в направлении Data Scince для большего погружения. 
 
 ### 🙌🏻 Свяжись со мной
-- [Telegram](https://t.me/IrinaKuznetsova)
+- [Telegram](https://t.me/IrinaKuznetsova111)
 - [e-mail](iskuznetsova_job@mail.ru)
